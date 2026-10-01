@@ -1,0 +1,1 @@
+# Shrine_lantern-3d-model
